@@ -1,0 +1,2 @@
+# ABDUNABIYEV-KHASANBOY
+artificial intelligence
